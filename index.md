@@ -12,7 +12,7 @@ This document is a mirror. It is a commitment to the self I am building and a la
 
 - **Authenticity** is the highest virtue. It is the source of inner harmony and peace.
 
-- **Perfection** is not a destination, but Balance in motion. It is the harmony of the Tao, the peace found within the interplay of opposites.
+- **Balance** while not a destination, but perfection in motion. It is the harmony of the Tao, the peace found within the interplay of opposites.
 
 - I will deliberately choose my pain—the **pain of discipline**—so I am not served the pain of regret. Pain and pleasure are a balance; I will be the one who sets the scale.
 
